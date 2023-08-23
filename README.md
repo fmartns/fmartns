@@ -9,8 +9,6 @@
 
 ###
 
-<img align="right" height="150" src="https://www.icegif.com/wp-content/uploads/2021/11/icegif-374.gif"  />
-
 ###
 
 <div align="left">
